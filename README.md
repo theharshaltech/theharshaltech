@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Harsh
+# 💫 Hi 👋, I'm Harshal
 **A passionate MCA Student || Aspiring Software Developer || Tech Enthusiast from India 🇮🇳**
 
 Email Me 👉 ✉️ **harshal.y.maurya@gmail.com** For Collaboration/Project or Anything Else 😊
